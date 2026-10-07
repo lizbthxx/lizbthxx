@@ -1,6 +1,6 @@
 pfp by yours truly... me 🤑
 <p align="center">
-<img src="https://media1.tenor.com/m/qlKqdodNSA4AAAAC/sun-wukong-wukong.gif"/>
+<img src="https://media1.tenor.com/m/qlKqdodNSA4AAAAC/sun-wukong-wukong.gif"width="60">
   <img src="https://media1.tenor.com/m/Zg00MbehOk0AAAAC/macaque-six-eared-macaque.gif">
 </p>
 <p align="center">
