@@ -17,6 +17,6 @@ ok bue
     TYSM FOR ALL OF THE PEOPLE SIGNING MY STRAW EVERY SINGLE ONE OF U GUYS ARE AMAZING ARTISTTSHSHBCnjnC AA  🥹🥹🥹🥹🥹
 
 <p align="center">
-<img src="https://media1.tenor.com/m/mO9SmaNofKwAAAAd/monkie-kid-lego.gif"/>
+<img src="https://media1.tenor.com/m/mO9SmaNofKwAAAAd/monkie-kid-lego.gif"width="200"/>
 </p>
                               
