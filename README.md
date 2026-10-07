@@ -4,7 +4,7 @@ pfp by yours truly... me 🤑
   <img src="https://media1.tenor.com/m/Zg00MbehOk0AAAAC/macaque-six-eared-macaque.gif"width="90">
 </p>
 <p align="center">
-<img src="https://media1.tenor.com/m/oJMX80hBOQEAAAAC/pugsley-pugsley-addams.gif" alt="a close up of a cartoon character with a very angry face ."/>
+<img src="https://media1.tenor.com/m/oJMX80hBOQEAAAAC/pugsley-pugsley-addams.gif" alt="a close up of a cartoon character with a very angry face ."width="150"/>
 </p>
                       HII!! My names Liz ^^
                 I am VERY social, comedic, and sometimes talk too much..(gulp) 
