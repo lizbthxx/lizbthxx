@@ -19,4 +19,6 @@ ok bue
 <p align="center">
 <img src="https://media1.tenor.com/m/mO9SmaNofKwAAAAd/monkie-kid-lego.gif"width="200"/>
 </p>
-                              
+<p align="center">
+<img src="blob:chrome-untrusted://media-app/4d76870e-e41a-4821-9677-15fbb9bdd23d"width="150">
+</p>                              
